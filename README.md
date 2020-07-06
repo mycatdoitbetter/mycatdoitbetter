@@ -1,2 +1,2 @@
 🌱 I’m currently learning ...
-<p>Hey! Take a look at my portfolio: <a href="mycatdoitbetter.github.io">mycatdoitbetter.github.io</a> </p>
+<p>Hey! Take a look at my portfolio: <a href="https://mycatdoitbetter.github.io">mycatdoitbetter.github.io</a> </p>
