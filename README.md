@@ -1,8 +1,9 @@
-## 😄 André Santos Castelo
+## 😄 André Castelo
 
-👨‍💻  **Trying to learn a little every day** 🍃
+🌿 **Trying to get better in a little while.**
 
-*"Study hard what interests you the most in the most undisciplined, irreverent and original manner possible."*
+*"Study hard what interests you the most in the most undisciplined, irreverent and original manner possible." 
+<br/>- Richard Feynman*
 
 <br />
 
