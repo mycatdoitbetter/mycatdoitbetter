@@ -1,2 +1,2 @@
-🌿 **Trying to get better in a little while.** 🌿
+🌿 **Got to get better in a little while.** 🌿
 
